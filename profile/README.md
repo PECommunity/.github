@@ -11,3 +11,7 @@
                                                                 |___/ 
 ````
 http://www.pecommunity.cn
+
+### 加入我们
+点击[这个链接](https://www.wenjuan.com/s/UZBZJvwQyMS/)填写表单即可加入；后续可获邀加入Slack/微信等群组。
+
